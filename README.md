@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @PauloLaurino
-- 👀 I’m interested in Trumbowyg
+- 👀 I'm interested in Trumbowyg and spdealer
 - 🌱 I’m currently learning Trumbowyg
 - 💞️ I’m looking to collaborate on Trumbowyg
 - 📫 How to reach me p_laurino@hotmail.com
